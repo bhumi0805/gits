@@ -1,2 +1,2 @@
 # gits
-hello sharma bhumi you are a very good girl i know 
+hello sharma bhumi you are a very good bhumu shamra 
